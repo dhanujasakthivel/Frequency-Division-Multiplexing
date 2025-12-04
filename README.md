@@ -125,10 +125,10 @@ Output Waveform
 ![WhatsApp Image 2025-11-30 at 3 04 55 PM](https://github.com/user-attachments/assets/75300b25-3d13-429e-9db6-f312d6e5b157)
 
 TABULATION:
+![WhatsApp Image 2025-12-04 at 3 43 49 PM](https://github.com/user-attachments/assets/93a0b1f4-de24-4fa5-9f99-77d41a830d05)
 
-![WhatsApp Image 2025-12-02 at 4 51 02 PM](https://github.com/user-attachments/assets/5f1637dc-8697-4833-8e6b-1b6c9869f253)
+![WhatsApp Image 2025-12-04 at 3 44 03 PM](https://github.com/user-attachments/assets/a936f8d9-ff97-48ee-ad34-9690f86b1445)
 
-![WhatsApp Image 2025-12-02 at 4 51 58 PM](https://github.com/user-attachments/assets/5487f5cf-f4f8-4cb8-b0f5-99bad4a81743)
 
 
 Result:
